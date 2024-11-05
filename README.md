@@ -1,0 +1,1 @@
+# klyssafridea_pluginkamera
